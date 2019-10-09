@@ -3,7 +3,7 @@ Jarryd
 
 Seth
 
-fge Trott
+Deaje Trott
 
 shakeem albouy
  
