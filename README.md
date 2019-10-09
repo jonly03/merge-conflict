@@ -1,6 +1,6 @@
 # merge-conflict
 
-VEEEEEEEEEEE
+Vanessa
 
 Jarryd
 
@@ -11,3 +11,5 @@ Deaje Zidane Eugene Livingston Leverock Trott
 shakeem albouy
  
 Update 10:54am 
+
+Merge conflict
