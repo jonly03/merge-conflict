@@ -3,6 +3,6 @@ Jarryd
 
 Seth
 
-Deaje
+Deaje Trott
 
 shakeem
