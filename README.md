@@ -1,13 +1,15 @@
 # merge-conflict
 
-VEEEEEEEEEEE
+Vanessa
 
 Jarryd Simmons
 
 Seth
 
-Deaje Trott
+Deaje Zidane Eugene Livingston Leverock Trott
 
 shakeem albouy
  
 Update 10:54am 
+
+Merge conflict
