@@ -3,7 +3,7 @@ Jarryd
 
 Seth
 
-Deaje Trott
+Deaje Zidane Eugene Livingston Leverock Trott
 
 shakeem albouy
  
